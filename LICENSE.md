@@ -1,4 +1,4 @@
-#  
+#  stealth Scripts for anime vanguards offers the most advanced anime vanguards Script, with god mode and silent aim. Perfect for dominating any match.
 
 
 
